@@ -3,10 +3,5 @@
 
 I am a fictionkin!! Doubles are okay for most of my kintypes except for a very select few! Usually don't share all fictionkins if idk you 
 
-Notes for friends and connections on github ^^
-
-- Mowie: dude you're so so cool please don't ever change you're so so epic!! also thank you for the support, even if you didnt realize you were doing so, you've helped me /gen
-- Vinny: you're so sweet and genuine tysm for all the support both you and Mowie have given me - thank you for believing me and being so awesome
-
-
-Hyperfixations at the moment: Dandy's World!!
+# Extra Note:
+I wont be on github often, nor will i be on pony town (which i havent for a solid two months anyhow). Currently, I am going through a lot medically and mentally, so please just be a bit more careful interacting with me, especially if I seem off; it is most likely pain or exhaustion, lightheadedness, or something of the sort. Thank you for your understanding and for reading <3
